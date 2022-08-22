@@ -1,2 +1,1 @@
-# wiki_thisday
- 
+# https://vk.com/public215436856
